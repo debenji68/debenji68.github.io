@@ -1,1 +1,1 @@
-# debenji68.github.io
+# debenji68.gitub.io
